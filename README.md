@@ -6,9 +6,10 @@
 - 📫 How to reach me: yurxth@gmail.com or via WhatsApp at +55 (12) 99676-2234  
 - 😄 Pronouns: he/him  
 - ⚡ Fun fact: I’m a very curious person and enjoy learning fun facts that few people know.
-     🚀✨ Aspiring IT professional  
+
+  🚀✨ Aspiring IT professional  
                  focused on data analysis  
-                         and development. ✨🚀
+                            and development. ✨🚀
 
 
 
